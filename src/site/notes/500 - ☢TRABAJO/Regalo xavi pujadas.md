@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/500-trabajo/regalo-xavi-pujadas/","tags":"gardenEntry","dgEnableSearch":false}
+{"dg-publish":true,"permalink":"/500-trabajo/regalo-xavi-pujadas/","tags":"gardenEntry","dgEnableSearch":true}
 ---
 
 ## Escrito
