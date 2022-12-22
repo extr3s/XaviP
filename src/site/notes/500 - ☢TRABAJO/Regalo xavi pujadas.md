@@ -2,13 +2,13 @@
 {"dg-publish":true,"permalink":"/500-trabajo/regalo-xavi-pujadas/","tags":"gardenEntry","dgEnableSearch":true}
 ---
 
-## Escrito
+## xavi pujadas
 
 Xavi, siento no haber podido disfrutar a tu lado en tu despedida. No obstante, no quiero que te vayas  y reservarme lo que siento hacia a ti sin compartirlo contigo.
 
 Cuando nos fuimos juntos al CD2 y yo pase a ser tu encargado, dude de cual podría ser tu respuesta, yo llevaba menos tiempo que tú y pasaba a ser tu "responsable".
 
-Decidí apoyarme en ti, tratarme como mi compañero, uno más,... A pesar que yo tenia idealizado una forma de trabajar, de llevar un grupo de personas, de hacerlo mio, potenciar un buen clima laboral ante todo, hacer en la medida de lo posible, que la gente venga a trabajar lo más a gusto posible. 
+Decidí apoyarme en ti, tratarme como mi compañero, uno más,... A pesar que yo tenia idealizado una forma de trabajar, de llevar un grupo de personas, de hacerlo mío, potenciar un buen clima laboral ante todo, hacer en la medida de lo posible, que la gente venga a trabajar lo más a gusto posible. 
 
 Poco a poco, a medida que han ido pasando cosas, me he dado cuenta, que no me siento a gusto llevando un grupo de personas, me tomo las cosas muy personales, luego soy impulsivo, demasiado pasional, me dejo llevar muy rápido por las emociones. (Mientras te escribo, soy consciente que me conoces perfectamente y no te estoy explicando nada nuevo.) 
 
